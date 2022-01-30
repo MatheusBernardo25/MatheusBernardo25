@@ -1,5 +1,7 @@
 ##Oii eu sou o Matheus Bernardo
-- 📫 Contate-me no email:bernardomatheus_99@hotmail.com
+Tenho 22 anos,moro em Portugal,Porto🌃
+Nascido em:São Paulo,capital🌆
+Aprendendo a cada dia🔙🔚©
 
 <div align="center">
   <a href="https://github.com/MatheusBernardo25">
