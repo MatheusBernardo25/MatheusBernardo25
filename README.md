@@ -1,6 +1,6 @@
 ##Oii eu sou o Matheus Bernardo
-Tenho 22 anos,moro em Portugal,Porto🌃
-Nascido em:São Paulo,capital🌆
+Tenho 22 anos,moro em Portugal,Porto❤️🤍💚
+Nascido em:Brasil-São Paulo,capital💚💙💛
 Aprendendo a cada dia🔙🔚©
 
 <div align="center">
