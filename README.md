@@ -1,7 +1,6 @@
-##Oii eu sou o Matheus Bernardo
-Tenho 25 anos,moro em Portugal,Porto❤️🤍💚
-Nascido em: Brasil-São Paulo,capital💚💙💛
-Aprendendo a cada dia🔙🔚©
+Matheus Bernardo
+Tenho 27 anos
+Desenvolvedor fullstack
 
 <div align="center">
   <a href="https://github.com/MatheusBernardo25">
